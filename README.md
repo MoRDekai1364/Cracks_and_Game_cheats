@@ -1,2 +1,2 @@
-# Game_cheats
+# cracks & cheats
 My own and collected game cheats from other authors
